@@ -1,1 +1,1 @@
-<img width="328" height="141" alt="Captura de pantalla 2026-06-07 143800" src="https://github.com/user-attachments/assets/daf4a545-a6bc-40c4-a3a0-45e8ae213ca3" /> thats just embarrassing atp! be creative.
+<img width="328" height="141" alt="Captura de pantalla 2026-06-07 143800" src="https://github.com/user-attachments/assets/daf4a545-a6bc-40c4-a3a0-45e8ae213ca3" /> guys learn to be creative
